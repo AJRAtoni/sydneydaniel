@@ -2,4 +2,4 @@
 Sydney &amp; Daniel - Wedding
 
 
-http://sydneyanddaniel.com/
+sydneyanddaniel.com
